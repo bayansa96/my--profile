@@ -19,7 +19,7 @@ I want to be part of a strong community that supports each other, and I’m alwa
 
 - I love technology, fashion, and gaming  
 - I'm originally from Palestine   
-- I’m learning Dutch 🇧🇪 and trying to build a future here  
+- I’m learning Dutch  and trying to build a future here  
 - I'm serious, dedicated, and always curious about how things work
 
 Thank you for this opportunity — I’m ready to give it my all!
